@@ -1,6 +1,6 @@
 # !whoame
 
-I'm noob coder from Finland. Mainly im forced to do this shit, because nobody else does it for me. What I do is for passion to get more €. Then ofc I'm somekind of an admin at Farssi.net
+I'm noob coder from Finland. Half pro, rest just luck, and small percent of determination to learn new stuff. Mainly im forced to do this shit, because nobody else does it for me. What I do is for passion to get more €. Then ofc I'm somekind of an admin at Farssi.net
 
 
 # Farssi.net
